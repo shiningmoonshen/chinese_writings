@@ -4,4 +4,4 @@ This is my writings in Chinese.
 
 Please enjoy!
 
-Hi
+Hi Jonah, welcome to visit!
